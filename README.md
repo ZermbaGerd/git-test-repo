@@ -1,6 +1,6 @@
 # Marvin's Miseries
 
-- [Chapter 1](chapter1.md)
-- [Chapter 2](chapter2.md)
-- [Chapter 3](chapter3.md)
-- [Chapter 4](chapter4.md)
+- [Marvin's Marvelous Monday Morning](chapter1.md)
+- [Marvin Turns The Other Cheek](chapter2.md)
+- [Marvin has a Classic Sense of Style](chapter3.md)
+- [Marvin's a Simple Guy](chapter4.md)

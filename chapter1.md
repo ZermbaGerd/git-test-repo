@@ -1,4 +1,4 @@
-# Chapter 1
+# Marvin's Marvelous Monday Morning
 
 It was a typical Monday morning for Marvin, a short man with a passion for routine and simplicity. As he walked into his local bank to make a deposit, he was greeted by the usual familiar faces of the bank tellers. However, today was going to be different.
 

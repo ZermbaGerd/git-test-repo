@@ -1,11 +1,14 @@
-# Chapter 3
+# Marvin has a Classic Sense of Style
 
-The next day, Marvin returned to the bank to make another deposit. As luck would have it, the same teller was working at the counter. Marvin approached her with a newfound sense of confidence, determined not to let her words affect him.
+"I appreciate your concern, but I'm quite content with how I dress," Marvin said, trying to end the conversation politely.
 
-"Good morning," Marvin said, flashing a warm smile at the teller. "I hope you're having a great day."
+The teller seemed to sense that she was getting nowhere with Marvin, so she reluctantly turned her attention back to processing his transaction. As Marvin waited for his receipt, he couldn't shake the feeling of being judged for something as trivial as his clothing.
 
-The teller looked up from her paperwork, her expression one of surprise. She had expected Marvin to be resentful or defensive after their previous encounter, but instead, he seemed genuinely friendly and composed.
+As he left the bank and made his way back home, Marvin couldn't help but dwell on the encounter with the teller. He couldn't understand why she felt the need to criticize his wardrobe choices, especially when he had always been courteous and respectful towards her.
 
-"Good morning," the teller replied, her tone slightly sheepish. "I'm sorry if I upset you with my comments the other day. I didn't mean to be rude."
+When he arrived home, Marvin decided to confide in his wife, Megan, about what had transpired at the bank. Megan listened attentively as Marvin recounted the encounter with the teller, her expression a mix of sympathy and amusement.
 
-Marvin waved her apology away with a dismissive gesture. "No need to apologize. We all have our own unique preferences when it comes to clothing. What matters most is how we carry ourselves with confidence and grace."
+"I can't believe she had the nerve to say that to you," Megan exclaimed, shaking her head in disbelief. "You've always had such a classic sense of style, Marvin. Don't let her comments get to you."
+
+Marvin felt a surge of gratitude towards Megan for her unwavering support. She had always been his rock, his pillar of strength in times of doubt and uncertainty. Her words of encouragement gave him the courage to brush off the teller's remarks and focus on what truly mattered in life.
+
